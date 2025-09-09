@@ -39,3 +39,4 @@ Pink Guy is one of Filthy Frank’s most famous creations, known for his pink mo
 
 ## Legacy
 Pink Guy became an internet icon, and his music project gained real-world recognition. Eventually, George Miller (the creator) retired Pink Guy when transitioning to his Joji music career.
+See also: [Filthy Frank](filthyfrank.md), [Salamander Man](salamanderman.md), [Chin-Chin](chinchin.md), [Safari Man](safariman.md)
