@@ -39,3 +39,4 @@ Though less prominent than Pink Guy or Salamander Man, Safari Man is a fan-favor
 - Best known for the phrase “I’m a safari man!” in skits.  
 - Costume is simple but iconic within the Omniverse.  
 - Considered by fans as the “weird uncle” of Filthy Frank’s crew.
+see also:filthyfrank.md chinchin.md safariman.md
